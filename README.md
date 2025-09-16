@@ -1,0 +1,2 @@
+# -From-Toxicity-to-Therapeutics-Discovering-the-Soil-Antibacterial-Potential
+Ornamental plants are widely grown in India have a vast array of bioactive molecules—such as flavonoids, polyphenols, alkaloids, terpenoids, tannins, saponins, and essential oils—which confer both therapeutic and toxicological attributes.Accordingly, ornamental plants represent promising leads for new medicines and therapeutic applications
